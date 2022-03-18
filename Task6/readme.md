@@ -38,7 +38,7 @@ CRTHXX#9911
 ---
 # **THANK YOU FOR READING** 🙏
 ### **OTHER LINKS :**
-[Instagram](https://www.instagram.com/_tharaniesh_/)
+[Instagram](https://www.instagram.com/__thaxx__/)
 ###
 [Facebook](https://lipsum.com/)
 ###
